@@ -2,7 +2,7 @@
 
 - Currently doing research in AI Safety, in particular IRL.
 
-- Looking to collaberate on playful projects or theoretical research. If anyone is building a pun-generator, let me know!
+- Looking to collaborate on playful projects or theoretical research. If anyone is building a pun-generator, let me know!
 
 - My LinkedIn is available on my profile. Get in touch!
 
